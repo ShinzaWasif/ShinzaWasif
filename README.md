@@ -5,4 +5,4 @@ I'm an aspiring Frontend Developer who is passionate about crafting beautiful an
 - 🌐 Let's Connect:
 I'm thrilled to connect with like-minded developers and mentors.
 Here is my LinkedIn:
-https://pk.linkedin.com/in/shinza-wasif-286768270
+www.linkedin.com/in/syeda-shinza-wasif-286768270
